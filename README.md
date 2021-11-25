@@ -1,3 +1,3 @@
-### Bazhin Artur 
+### Bazhin Artur
 
 
